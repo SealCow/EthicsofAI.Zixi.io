@@ -1,1 +1,1 @@
-# EthicsofAI.Zixi.io
+# Cybersecurity.Zixi.io
